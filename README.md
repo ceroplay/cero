@@ -22,7 +22,7 @@ No, I did not. These games are made by different game developers. Thank you so m
 
 #### Can you add this game to the site?
 
-You can request a game on our site under Extras. Remember, your game may not be added at all. BTW, stop requesting for Roblox, Shell Shockers, Fortnite, Minecraft, or Valorant. It's not possible for me to get code for those games.
+You can request a game on our site under Extras. Remember, your game may not be added at all. Stop requesting for Roblox, Shell Shockers, Fortnite, Minecraft, or Valorant. It's not possible for me to get code for those games.
 
 ## License
 
